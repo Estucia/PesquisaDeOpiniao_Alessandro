@@ -1,1 +1,0 @@
-# PesquisaDeOpiniao_Alessandro
